@@ -6,4 +6,4 @@ Credit til Flemse#1616 for at hjælpe mig!
 
 Yder ikke support på det og det virker måske ikke!
 
-Discord: https://discord.io/arniesscripts
+Min shop: https://discord.gg/K7Ez7vYxk2
